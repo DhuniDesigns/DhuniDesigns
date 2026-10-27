@@ -1,5 +1,5 @@
 ## Hi there 👋
-# Hey there, I’m Adunni 👋🏽
+# Hey there, I’m Hafsoh Bashar (Adunni) 👋🏽
 
 I’m a product designer and emerging design engineer based in Lagos, Nigeria.
 
